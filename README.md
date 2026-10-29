@@ -1,1 +1,1 @@
-##### Inbound at aidenyoung at sandiego dot edu
+##### Inbound to aidenyoung at sandiego dot edu
